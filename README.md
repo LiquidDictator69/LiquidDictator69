@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @LiquidDictator69
+- 🌱 I’m currently learning HTML and CSS
+- 📫 You can reach me via discord: LiquidDictator69#6134
